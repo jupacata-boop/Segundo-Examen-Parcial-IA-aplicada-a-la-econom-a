@@ -1,1 +1,0 @@
-# Segundo-Examen-Parcial-IA-aplicada-a-la-econom-a
